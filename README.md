@@ -22,7 +22,7 @@
 
 ## A Glimpse into My Vision 🌍
 
-What drives me is a holistic perspective of the present/future, envisioning AI as a catalyst for positive change within our community. My biggest goal is to harness the potential of AI as a bridge, connecting our existing knowledge derived from neuroscience research to practical applications. This endeavor aims to develop tools and solutions that not only will address and mitigate health challenges but also enhance the overall well-being and improve the quality of life for all individuals.
+What drives me is a perspective of the present/future with AI as a catalyst for positive change within our community. My biggest goal is to harness the potential of AI as a bridge, connecting our existing knowledge derived from neuroscience research to practical applications. This endeavor aims to develop tools and solutions that not only will address and mitigate health challenges but also enhance the overall well-being and improve the quality of life for all individuals.
 
 ## Connect with Me 🌐
 
